@@ -9,6 +9,8 @@ Napoleon number 1 HATER . napoleon glazers dni,yall dont gotta larp bro istg,REA
 
 AVOID friending me IF you ghosted me after a day of talk as i am someone who likes to talk alot despite being anti social.
 
+***AVOID talking about ships.I strictly do not ship any characters weither if its from GNB,COUNTRYHUMANS or any other fandoms im in, and do not ship real historical people,i do not condone any of it.Although i do art of oc x canon but i still dont think itll be okay for it to be the main focus,Thank you.***
+
 W2i is needed because i offtab alot.
 do not be afraid to approach or to c+h me while im with my Dad,he is complately friendly and fine with others.
 ##
