@@ -13,7 +13,9 @@ AVOID friending me IF you ghosted me after a day of talk as i am someone who lik
 
 W2i is needed because i offtab alot.
 do not be afraid to approach or to c+h me while im with my Dad,he is complately friendly and fine with others.
-##
+## DO NOT INTERACT 
+ fl: NAPOLEON GLAZERS , MISOGYNIST , SHIPPERS (unless we're close friends and no this doesnt give you the right to freely talk about it and DOESNT give u the right to ship historical people.) , people who thinks SA . SH . Depression or any mental illness labels a joke , femboy + sexual jokes , maid dress skins , anything relating to proisraels Nazism Communism terrorism TCC fans , Brainrots.
+ **IF** you like those terranova edits of people who clearly s-icide , or liking any school shooters edits then youre pathetic and disgusting,go get a fucking life.
 ## Main Interest
 **Napoleonic War** + Other Histories
 
