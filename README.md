@@ -35,5 +35,7 @@ OR YOU CAN READ HIS HISTORY ALONE :
 ##
 ![](https://64.media.tumblr.com/3b3a16808af090e1cedfc9d580e04310/2d7a563e31a92c2a-16/s250x400/a6017e4fe3debef27a74d5199829000d16585687.gifv) ![](https://64.media.tumblr.com/9af5c2326c347d3cade3e1cb7ad63f6f/0592c647ab427b24-3d/s400x600/f9196901b60650b977d64003c56ff3d26e486c96.gifv)
 ##
-![](https://64.media.tumblr.com/edaaa0ea6484d1b12e1db1de85b40945/95ea8714ed94f93d-93/s400x600/a9e0ba230bd42aa0d6eaa824d7048cc3d0a6dd1f.gifv) ![](https://64.media.tumblr.com/c698f2ce9fe31fc95549b8567f1e339a/a2557284a4ddc856-83/s250x400/cb1bc635143665cd9819187efb0bcfcecf3d3767.webp) Thats all ok? discord ; !@bvrryw
+![](https://64.media.tumblr.com/edaaa0ea6484d1b12e1db1de85b40945/95ea8714ed94f93d-93/s400x600/a9e0ba230bd42aa0d6eaa824d7048cc3d0a6dd1f.gifv) 
+
+![](https://64.media.tumblr.com/c698f2ce9fe31fc95549b8567f1e339a/a2557284a4ddc856-83/s250x400/cb1bc635143665cd9819187efb0bcfcecf3d3767.webp) Thats all ok? discord ; !@bvrryw
 ##
