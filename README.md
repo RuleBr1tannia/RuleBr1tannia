@@ -22,8 +22,8 @@ do not be afraid to approach or to c+h me while im with my Dad,he is complately 
 games i only play - L&C , **Guts and Blackpowder** , Blood & Iron , British War .
 
 int if you must,you can moot me idm
-##
-DOCUMENTS AND A PIECE OF WHAT NAPOLEON HAD DONE (BAD) :
+
+## DOCUMENTS AND A PIECE OF WHAT NAPOLEON HAD DONE (BAD) :
 
 [Negative affects Of Napoleon](https://brainly.in/question/58415609#:~:text=However%2C%20there%20were%20also%20negative,liberties%20and%20limited%20political%20freedoms.) ,
 [Negative Effects Of Napoleon2](https://www.bartleby.com/essay/Negative-Effects-Of-Napoleon-FJ3F5LWQ9X6) ,
