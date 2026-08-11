@@ -18,7 +18,7 @@ reworking .
 ## Main Interest
 **Napoleonic War** + Other Histories
 
-games i only play (Roblox/Steam/itch.io/CDS. ; PS&PC ) - L&C , **Guts and Blackpowder** , Blood & Iron , British War . Napoelonic war simulation , Napoleon: Total War , Grand Tactician: Napoleonic Wars  , Holdfast: Nations At War
+games i only play (**Roblox**/Steam/itch.io/**CDS**. ; PS&**PC** ) - **L&C** , **Guts and Blackpowder** , Blood & Iron , British War . Napoelonic war simulation , **Napoleon: Total War** , **Grand Tactician: Napoleonic Wars**  , Holdfast: Nations At War
 
 int if you must,you can moot me idm
 
