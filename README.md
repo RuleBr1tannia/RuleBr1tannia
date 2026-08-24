@@ -1,6 +1,7 @@
 ## SIGN MY DUMB ATABOOK / STRAWPAGE NOW!!
 my main fndm are currently Napoleonic wars , maybe gnb aswell.
-![](https://64.media.tumblr.com/fca5a19f56c3b34b3f2ffee7ff79da6b/74741abcae2fd44d-37/s1280x1920/dedb1bea70e1d4f0c806c4f926ef454222e3ff61.pnj)  
+##
+![](https://64.media.tumblr.com/07ca5c38322b9d00044714e7f7b78c8c/19a5ae6844728503-a5/s400x600/82ff32f4a223586a0320895b71ee49adb0897940.pnj)
 ##
 
 ## BRITANNIA!!
@@ -39,8 +40,7 @@ OR YOU CAN READ HIS HISTORY ALONE :
 [5MINHISTORY](https://fiveminutehistory.com/posts/napoleon-hero-or-tyrant/#:~:text=For%20instance%2C%20Napoleon%20reintroduced%20slavery,nothing%20to%20advance%20gender%20equality.)
 ##
 ![](https://64.media.tumblr.com/3b3a16808af090e1cedfc9d580e04310/2d7a563e31a92c2a-16/s250x400/a6017e4fe3debef27a74d5199829000d16585687.gifv) ![](https://64.media.tumblr.com/9af5c2326c347d3cade3e1cb7ad63f6f/0592c647ab427b24-3d/s400x600/f9196901b60650b977d64003c56ff3d26e486c96.gifv)
-##
 ![](https://64.media.tumblr.com/edaaa0ea6484d1b12e1db1de85b40945/95ea8714ed94f93d-93/s400x600/a9e0ba230bd42aa0d6eaa824d7048cc3d0a6dd1f.gifv) 
-
-![](https://64.media.tumblr.com/c698f2ce9fe31fc95549b8567f1e339a/a2557284a4ddc856-83/s250x400/cb1bc635143665cd9819187efb0bcfcecf3d3767.webp) Thats all ok? discord ; !@bvrryw
 ##
+![](https://64.media.tumblr.com/cf2c2eb8c11e399da6f6fa70d79d94ac/19a5ae6844728503-73/s400x600/2dad0ddfeba74c85cad7b4b1bb42c07e2b37db99.pnj)
+![](https://64.media.tumblr.com/eec7e09cc9b10e280c7bebb9d879421e/a2557284a4ddc856-4c/s400x600/1e98c590e81ef2a939e2040bb18785a2e6dff763.pnj)
