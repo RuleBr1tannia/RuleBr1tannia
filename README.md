@@ -41,6 +41,7 @@ OR YOU CAN READ HIS HISTORY ALONE :
 ##
 ![](https://64.media.tumblr.com/3b3a16808af090e1cedfc9d580e04310/2d7a563e31a92c2a-16/s250x400/a6017e4fe3debef27a74d5199829000d16585687.gifv) ![](https://64.media.tumblr.com/9af5c2326c347d3cade3e1cb7ad63f6f/0592c647ab427b24-3d/s400x600/f9196901b60650b977d64003c56ff3d26e486c96.gifv)
 ![](https://64.media.tumblr.com/edaaa0ea6484d1b12e1db1de85b40945/95ea8714ed94f93d-93/s400x600/a9e0ba230bd42aa0d6eaa824d7048cc3d0a6dd1f.gifv) 
+my roblox user are Duke0fWellingtonn if youre wondering.,
 ##
 ![](https://64.media.tumblr.com/cf2c2eb8c11e399da6f6fa70d79d94ac/19a5ae6844728503-73/s400x600/2dad0ddfeba74c85cad7b4b1bb42c07e2b37db99.pnj)
 ![](https://64.media.tumblr.com/eec7e09cc9b10e280c7bebb9d879421e/a2557284a4ddc856-4c/s400x600/1e98c590e81ef2a939e2040bb18785a2e6dff763.pnj)
