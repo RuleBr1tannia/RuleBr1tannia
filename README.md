@@ -6,7 +6,7 @@ my main fandm/interest are currently Napoleonic wars , British-Revolution ( the 
 
 ## BRITANNIA!!
 
-I go by barry and Arthur , whatever suits you best.
+I go by barry and Nelson , whatever suits you best.
 I spend most of my pathetic life in COUNTRYHUMANS Area,you can find me there.
 
 Napoleon number 1 HATER . napoleon glazers dni,yall dont gotta larp bro istg,READ about WHAT he has done and taken away of.Yall cant even read BASIC history like how WW1 started too im genuinely crying/srs
