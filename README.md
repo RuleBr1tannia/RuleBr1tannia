@@ -1,10 +1,12 @@
-## SIGN MY DUMB ATABOOK / STRAWPAGE NOW!!
+## SIGN MY DUMB ATABOOK x
 my main fandm/interest are currently Napoleonic wars , British-Revolution ( the English Revolution of all century )  , maybe gnb aswell.
 ##
 ![](https://64.media.tumblr.com/07ca5c38322b9d00044714e7f7b78c8c/19a5ae6844728503-a5/s400x600/82ff32f4a223586a0320895b71ee49adb0897940.pnj)
 ##
 
 ## BRITANNIA!!
+
+Happy Suicide Prevention Month
 
 I go by barry and Nelson , whatever suits you best.
 I spend most of my pathetic life in COUNTRYHUMANS Area,you can find me there.
