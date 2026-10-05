@@ -4,7 +4,8 @@ my main fandm/interest are currently Napoleonic wars , British-Revolution ( the 
 Arthur Wellesley ONLY FAN AND NOBODY ELSES 😡😡😡😡😡/satire.
 
 all of those " doubles dni " people can go fuck themself. Why are you genuinely getting mad over someone who has the same kin as you dude #pmo
-frUk , napolington shippers dni ok.
+
+if youre sitting with me for a sake of shipping them genuinely dont.frUk , napolington shippers iwec / thin ince ok.
 sorry im kind sorry hi
 
 ##
