@@ -21,10 +21,12 @@ Hihi hi guys please check out my Kins and Irls , [barry's awsome insert](https:/
 **Before you decided to be friends with me do take note that i have an unstable mental health issues so moodswings can happen anytime!, i am attached easily and i get upset alot but i can try to control it if you're not comfortable! just tell me!!**
 
 Napoleon number 1 HATER . napoleon glazers dni,yall dont gotta larp bro istg,READ about WHAT he has done and taken away of.Yall cant even read BASIC history like how WW1 started too im genuinely crying/srs
+**Napolington , FRUK** shippers please please please iwec , you guys are on Thin ice , or dni at all.
 
-AVOID friending me IF you ghosted me after a day of talk as i am someone who likes to talk alot despite being anti social.
+IF **you cuddle with me** with an intend of shipping then please dont.
 
-***AVOID talking about ships.I strictly do not ship any characters weither if its from GNB,COUNTRYHUMANS or any other fandoms im in, and do not ship real historical people,i do not condone any of it.Although i do art of oc x canon but i still dont think itll be okay for it to be the main focus,Thank you.***
+-AVOID friending me IF you ghosted me after a day of talk as i am someone who likes to talk alot despite being anti social.
+- ***AVOID talking about ships.I strictly do not want to show ship any characters weither if its from GNB,COUNTRYHUMANS or any other fandoms im in, and do not ship real historical people,i do not condone any of it.Although i do art of oc x canon but i still dont think itll be okay for it to be the main focus,Thank you.***
 
 ## i mostly use unserious skin.
 
