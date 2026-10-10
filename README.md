@@ -1,12 +1,10 @@
+<div align="center">
+  
 ## SIGN MY DUMB ATABOOK x
+  
 my main fandm/interest are currently Napoleonic wars , British-Revolution ( the English Revolution of all century )  , maybe gnb aswell.
 
 Arthur Wellesley ONLY FAN AND NOBODY ELSES 😡😡😡😡😡/satire.
-
-all of those " doubles dni " people can go fuck themself. Why are you genuinely getting mad over someone who has the same kin as you dude #pmo
-
-if youre sitting with me for a sake of shipping them genuinely dont.frUk , napolington shippers iwec / thin ince ok.
-sorry im kind sorry hi
 
 ##
 ![](https://64.media.tumblr.com/07ca5c38322b9d00044714e7f7b78c8c/19a5ae6844728503-a5/s400x600/82ff32f4a223586a0320895b71ee49adb0897940.pnj)
@@ -19,6 +17,9 @@ Happy Suicide Prevention Month
 I go by barry and Nelson , whatever suits you best.
 I spend most of my pathetic life in COUNTRYHUMANS Area,you can find me there.
 
+Hihi hi guys please check out my Kins and Irls , [barry's awsome insert](https://rentry.co/barrysirlsandkins)
+**Before you decided to be friends with me do take note that i have an unstable mental health issues so moodswings can happen anytime!, i am attached easily and i get upset alot but i can try to control it if you're not comfortable! just tell me!!**
+
 Napoleon number 1 HATER . napoleon glazers dni,yall dont gotta larp bro istg,READ about WHAT he has done and taken away of.Yall cant even read BASIC history like how WW1 started too im genuinely crying/srs
 
 AVOID friending me IF you ghosted me after a day of talk as i am someone who likes to talk alot despite being anti social.
@@ -28,10 +29,9 @@ AVOID friending me IF you ghosted me after a day of talk as i am someone who lik
 ## i mostly use unserious skin.
 
 W2i is needed because i offtab alot.
-cuddles is allowed unless if im with my partner.
-do not be afraid to approach or to c+h me while im with my Dad,he is complately friendly and fine with others.
-## DO NOT INTERACT 
-reworking .
+cuddles is allowed 
+do not be afraid to approach or to c+h me 
+
 ## Main Interest
 **Napoleonic War** + Other Histories
 
@@ -48,6 +48,9 @@ int if you must,you can moot me idm
 ##
 OR YOU CAN READ HIS HISTORY ALONE :
 [5MINHISTORY](https://fiveminutehistory.com/posts/napoleon-hero-or-tyrant/#:~:text=For%20instance%2C%20Napoleon%20reintroduced%20slavery,nothing%20to%20advance%20gender%20equality.)
+
+</div>
+
 ##
 ![](https://64.media.tumblr.com/3b3a16808af090e1cedfc9d580e04310/2d7a563e31a92c2a-16/s250x400/a6017e4fe3debef27a74d5199829000d16585687.gifv) ![](https://64.media.tumblr.com/9af5c2326c347d3cade3e1cb7ad63f6f/0592c647ab427b24-3d/s400x600/f9196901b60650b977d64003c56ff3d26e486c96.gifv)
 ![](https://64.media.tumblr.com/edaaa0ea6484d1b12e1db1de85b40945/95ea8714ed94f93d-93/s400x600/a9e0ba230bd42aa0d6eaa824d7048cc3d0a6dd1f.gifv) 
