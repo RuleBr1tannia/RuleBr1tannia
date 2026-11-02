@@ -14,7 +14,7 @@ Arthur Wellesley ONLY FAN AND NOBODY ELSES 😡😡😡😡😡/satire.
 
 Happy Suicide Prevention Month
 
-I go by barry and Nelson , whatever suits you best.
+I go by barry and Travis , whatever suits you best.
 I spend most of my pathetic life in COUNTRYHUMANS Area,you can find me there.
 
 Hihi hi guys please check out my Kins and Irls , [barry's awsome insert](https://rentry.co/barrysirlsandkins)
